@@ -2,7 +2,7 @@
 
   <img src="https://files.catbox.moe/72yb0v.jpg" width="100%">
   <br>
-  [ʚ ૮𓏼 ´ ⩊ ` 𓏼ა ɞ](https://youtu.be/hTK5gWxWCNg?si=tc0XirysCt0FRELU)
+<a href="https://youtu.be" style="text-decoration: none;"> ʚ ૮𓏼 ´ ⩊ ` 𓏼ა ɞ </a>
   <br>
   <img src="https://files.catbox.moe/u6f6ep.gif" width="22" style="vertical-align: middle;"> ໒༏ྀ꒱ ᵗʰᵒᵐᵐʸ 𓈒 ꒰𓏼´ `𓏼 ྀིᥩ 
   <br>
