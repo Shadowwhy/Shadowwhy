@@ -1,6 +1,6 @@
 <div align="center">
 
-  <img src="https://files.catbox.moe/30olt2.jpg" width="100%">
+  <img src="https://files.catbox.moe/72yb0v.jpg" width="100%">
   <br>
   [ʚ ૮𓏼 ´ ⩊ ` 𓏼ა ɞ](https://youtu.be/hTK5gWxWCNg?si=tc0XirysCt0FRELU)
   <br>
