@@ -1,6 +1,6 @@
 <div align="center">
 
-  <img src="https://files.catbox.moe/72yb0v.jpg" width="100%">
+  <img src="https://files.catbox.moe/hf4abk.jpg" width="100%">
   <br>
 <a href="https://rentry.co/thommyhh" style="text-decoration: none;"> ʚ ૮𓏼 ´ ⩊ ` 𓏼ა ɞ </a>
   <br>
